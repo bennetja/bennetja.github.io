@@ -16,6 +16,6 @@ I have worked as a freelancer for Granta, And Other Stories and English PEN.
 
 My translations have appeared in [Asymptote](https://www.asymptotejournal.com/blog/2019/06/25/translation-tuesday-he-who-is-worthy-of-love-by-abdellah-taia/), Mexico City Lit and K1N. In 2023 I was awarded a PEN Presents grant to translate a sample of Colombian author Fernando Molano's novel *Vista desde una acera* (*View from a sidewalk*).
 
-My recent fiction has been published in [3AM](https://www.3ammagazine.com/3am/dignity/) and is forthcoming in [The Dublin Review](https://thedublinreview.com/).
+My recent fiction has been published in [3AM](https://www.3ammagazine.com/3am/dignity/) and [The Dublin Review](https://thedublinreview.com/product/spring-2024/).
 
 You can contact me [here](mailto:seamasmacb@gmail.com).
