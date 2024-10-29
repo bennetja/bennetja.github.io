@@ -18,4 +18,6 @@ My translations have appeared in [Asymptote](https://www.asymptotejournal.com/bl
 
 My recent fiction has been published in [3AM](https://www.3ammagazine.com/3am/dignity/) and [The Dublin Review](https://thedublinreview.com/product/spring-2024/).
 
+In 2024 I received Irish Arts Council Agility Award funding in support of my writing.
+
 You can contact me [here](mailto:seamasmacb@gmail.com).
