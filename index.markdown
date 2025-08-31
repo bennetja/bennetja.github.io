@@ -20,4 +20,6 @@ My recent fiction has been published in [3AM](https://www.3ammagazine.com/3am/di
 
 In 2024 I received Irish Arts Council Agility Award funding in support of my writing.
 
+I am also the founder of indie publisher [Ssnake Press](https://www.ssnakepress.com).
+
 You can contact me [here](mailto:seamasmacb@gmail.com).
